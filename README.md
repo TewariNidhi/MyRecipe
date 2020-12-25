@@ -1,0 +1,3 @@
+# Christmas Cake
+
+Christmas cake is an English tradition that began as plum porridge. A traditional English Christmas Cake is made with moist Zante currants, sultanas (golden raisins) and raisins which have been soaked in rum. If a Christmas cake is covered in icing, it is quite common for it to be decorated – models of houses, of fir trees or of Father Christmas may be in the array of decorations.
